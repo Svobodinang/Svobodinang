@@ -11,7 +11,7 @@
 
 - 📫 Let's connect on [telegram](https://t.me/HopeFreedom)
 
-- 📄 Know about my experiences [https://hope-freedom.notion.site/Nadezhda-Svobodina-2624538c281f803399c8c89989492535](https://hope-freedom.notion.site/Nadezhda-Svobodina-2624538c281f803399c8c89989492535)
+- 📄 Know about my experiences [CV & Portfolio](https://hope-freedom.notion.site/Nadezhda-Svobodina-2624538c281f803399c8c89989492535)
 
 
 <h3 align="left">⚙️ Tech stack</h3>
