@@ -7,7 +7,7 @@
 
 - 🌍 Currently **Based in Dubai 🇦🇪, open to remote and hybrid collaborations.**
 
-- 📝 I regularly write articles on [@HopeThinks](@HopeThinks)
+- 📝 I regularly write articles on [@HopeThinks](https://t.me/hopeThinks)
 
 - 📫 Let's connect on [telegram](https://t.me/HopeFreedom)
 
